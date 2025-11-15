@@ -1,0 +1,1 @@
+######### Kurcze blaszka, ja pierdziukam
